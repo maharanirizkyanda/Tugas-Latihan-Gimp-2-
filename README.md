@@ -1,0 +1,1 @@
+# Tugas-Latihan-Gimp-2-
